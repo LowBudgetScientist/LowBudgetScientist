@@ -2,6 +2,6 @@
 - 👀 I’m interested in Android, Arduino and electronics projects.
 - 🌱 I’m currently learning Arduino.
 - 💞️ I’m looking to collaborate on Arduino.
-- 📫 How to reach me: tygerr.dragon@gmail.com
+- 📫 How to reach me: tygerr.dragon@gmail.com (Youtube: https://www.youtube.com/@lowbudgetscientist/shorts)
 - 😄 Pronouns: LOL/LOL
 - ⚡ Fun fact: I am always having fun.
