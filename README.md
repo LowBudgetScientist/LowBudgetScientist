@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @LowBudgetScientist
+- 👀 I’m interested in Android, Arduino and electronics projects.
+- 🌱 I’m currently learning Arduino.
+- 💞️ I’m looking to collaborate on Arduino.
+- 📫 How to reach me: tygerr.dragon@gmail.com
+- 😄 Pronouns: LOL/LOL
+- ⚡ Fun fact: I am always having fun.
